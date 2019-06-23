@@ -28,3 +28,7 @@ From https://www.epicurious.com/recipes/food/views/blueberry-buttermilk-bundt-ca
 1. Bake 350F for 1 hour
 
 Top with glaze after cooling.
+
+## Notes
+
+This is kinda dry , add more moisture
