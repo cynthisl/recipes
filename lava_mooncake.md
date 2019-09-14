@@ -24,6 +24,8 @@
 * 50 g evaporated milk
 * 30 g melted butter
 
+Notes: a little grainy, maybe decrase milk powder or sift better
+
 
 30 g butter, 40 g sugar, 100 g egg, 175g liquic, 110 g dry
 ½ cup custard powder (60 g)
@@ -58,12 +60,12 @@ Combine dry, add butter, add egg, add liquids, steam
 
 ## Pastry
 
-120g butter, softened at room temperature (one stick + a little more)
-90g icing sugar (I reduced to 60g) 
-1 egg
-220g all purpose flour (I used organic unbleached flour) 
-35g custard powder
-1/4 tsp baking powder
+* 120g butter, softened at room temperature (one stick + a little more)
+* 90g icing sugar (I reduced to 60g) 
+* 1 egg
+* 220g all purpose flour (I used organic unbleached flour) 
+* 35g custard powder
+* 1/4 tsp baking powder
 
 ## Sources
 
