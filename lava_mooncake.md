@@ -11,18 +11,18 @@
 ## Custard Filling (300 g)
 
 (80 g dry)
-30 g custard powder
-20 g milk powder
-20 g AP flour
-10 g tapioca flour
-60 g sugar
-pinch of salt
+* 30 g custard powder
+* 20 g milk powder
+* 20 g AP flour
+* 10 g tapioca flour
+* 60 g sugar
+* pinch of salt
 
-2 egg (100 g)
+* 2 egg (100 g)
 (150 g liquids)
-100 g coconut milk
-50 g evaporated milk
-30 g melted butter
+* 100 g coconut milk
+* 50 g evaporated milk
+* 30 g melted butter
 
 
 30 g butter, 40 g sugar, 100 g egg, 175g liquic, 110 g dry
