@@ -5,11 +5,11 @@ Makes about 3 cups
 ## Ingredients
 
 * 14 oz ketchup
-* 10 tablespoons water
-* 5 tablespoon cider vinegar
-* 5 tablespoon white vinegar
-* 4.5 tablespoons brown sugar
-* 2.5 tablespoons Worcestershire sauce
+* 10 tablespoons (5 oz) water
+* 5 tablespoon (2.5 oz) cider vinegar
+* 5 tablespoon (2.5 oz) white vinegar
+* 4.5 tablespoons (2.1 oz) brown sugar
+* 2.5 tablespoons (1.25 oz) Worcestershire sauce
 * 1 tablespoon chile powder
 * 1 tablespoon ground cumin
 * 1.5 teaspoons kosher salt
