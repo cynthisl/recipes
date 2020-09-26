@@ -14,7 +14,8 @@
 
 * 180 gm butter (3/4 cup), cold and diced
 * 60 gm powdered sugar
-* 250 gm cake flour
+* 205 gm AP flour
+* 45 gm cornstarch
 * 60 gm milk powder
 * 2 egg yoks
 * 30 gm custard powder
