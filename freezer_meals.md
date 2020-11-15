@@ -1,5 +1,19 @@
+## Buttermilk Chicken
 
-## Instant Pot (from frozen)
+* 1 cup buttermilk
+* 1 tbsp honey
+* 1 tsp thyme
+* 1 tbsp rosemary
+* 1 tsp sage
+* 1 tsp black pepper
+* 1 tsp salt
+* 1 tsp dijon mustard
+* 2 lbs chicken thighs
+
+Marinate and grill
+
+
+# Instant Pot (from frozen)
 
 ## Instant Pot Tuscan Chicken
 
