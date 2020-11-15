@@ -1,4 +1,5 @@
 
+## Instant Pot (from frozen)
 
 ## Instant Pot Tuscan Chicken
 
@@ -112,8 +113,42 @@ From frozen, high 60 min, natural release, add cornstarch slurry
 
 From frozen, high 25 min, 10 min natural release, add cornstatch slurry
 
+## Thai Peanut Curry
+
+* 2 pounds boneless skinless chicken thighs, trimmed
+* 14 oz can coconut milk
+* 1/2 cup creamy peanut butter
+* 3 tbsp lime juice
+* 1 tbsp ginger, grated
+* 2 tbsp tamari or soy sauce
+* 3 tbsp honey
+* 1 tbsp toasted sesame oil
+* 2 tsp minced garlic
+* 2 tsp curry powder yellow
+* 1 tsp cumin
+* 1 tsp garam masala
+* 1/2 tsp red pepper flakes
+* 1/4 tsp chicken boullion
+
+Add 1/4c water, cook 15min high pressure, 10 min natural release
+
+## Cilantro Lime Chicken
+
+* 1 lb boneless skinless chicken breast
+* 1 cup orange juice
+* 1 cup chicken broth
+* juice of 2 fresh limes
+* 2 tsp minced garlic
+* 1/2 cup chopped cilantro leaves
+* 1 can black beans, drained and rinsed
+* 2 cups frozen corn
+* 1 tbsp ground cumin
+
+Add 1/4c water, cook 12 min high pressure, 10 min natural release
+
 # Sources
 
 * https://www.thekitchn.com/instant-pot-freezer-meals-23059414
 * https://pinchofyum.com/freezer-meals
 * https://onceamonthmeals.com/blog/series/instant-pot/50-instant-pot-freezer-meals/
+* https://happymoneysaver.com/easy-freezer-meals/
